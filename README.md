@@ -2,8 +2,8 @@
 - 👀 I’m interested in programming.
 - 🌱 I’m currently learning programming languages.
 - 💞️ I’m looking to collaborate on GitHub and WhatsApp.
-- 📫 How to reach me you can email me on |gyalzensherpa7879@gmail.com |
-- 😄 Pronouns: ...
+- 📫 How to reach me ? you can email me on |gyalzensherpa7879@gmail.com |
+- 😄 Pronouns:He
 - ⚡ Fun fact: ...
 
 <!---
